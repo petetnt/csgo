@@ -1,4 +1,4 @@
 # csgo
 
 Crosshair:
-CSGO-GxG7G-5npkx-5ZnLo-nxNMF-nXx9H
+CSGO-hSvSv-htm3X-dKjNS-2rtYT-Vs5VH
